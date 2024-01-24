@@ -1,2 +1,2 @@
 # Hi there 👋
-# Stefan Pîrvu
+# *Ștefan Pîrvu*
